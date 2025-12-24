@@ -2,8 +2,8 @@
 
 🚀 Desenvolvedor | Cloud | Automação | Aspirante a DevOps | Docker | Fullstack  
 📍 Brasília - DF, Brasil  
-📫 **joaovictormedeiros1505@gmail.com** • 📞 (61) 99818-9652  
-💼 LinkedIn: **joãovictormedeirossilva** • GitHub: **Joao-Victor-Medeiros**
+📫 **joaovictormedeiros1505@gmail.com**  
+💼 LinkedIn: **joãovictormedeirossilva**
 
 ---
 
